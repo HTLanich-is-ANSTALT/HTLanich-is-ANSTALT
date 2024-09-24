@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @HTLanich-is-ANSTALT
+- 👀 I’m interested in skiing & snowboarding
+- 🌱 I’m currently learning electronics and programming
+- 💞️ I’m looking to collaborate on bro idk
+- 📫 How to reach me SICHA NIT
+- ⚡ Fun fact: i hass de schual ps: hinweis im namen
